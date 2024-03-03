@@ -12,7 +12,7 @@ I, Ernaut, am usually seen near the library, café or wandering around. I watch 
 ##### -- FREEDOMFOREVER
 ![image](https://github.com/ernautical/ernautical/assets/161996176/c916414a-3c39-4070-8ff3-0312fe94a9a6)
 
-Before you interact, I wish that these, ![link](https://dni-criteria.carrd.co), dont apply to you. I mean this is the vilest way possible.
+Before you interact, I wish that these, https://dni-criteria.carrd.co dont apply to you. I mean this is the vilest way possible.
 Secondly, I don't keep entities friended for long; I find myself unfriending most people I interact with, leaving off only one to two people. Apologies in advance.
 I am BEGGING you to use tone tags, I am horrid at determining the tone of the conversation through text and in reality. If you wish for me to understand you, I suggest you use tone tags; /j, /hj, and /srs will suffice.
 
