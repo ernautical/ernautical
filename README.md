@@ -28,5 +28,6 @@ If you wish to discuss ANY of these topics, please whisper. I'm always happy to 
 
 Alas, that is the end of this introduction. I bid thee adieu, poor wayfaring stranger.
 
-![image](https://github.com/ernautical/FLESHLY.YEARNING/assets/161996176/245b1356-1651-4a8d-8ebf-be472511eefb)
+![image](https://github.com/ernautical/FLESHLY.YEARNING/assets/161996176/245b1356-1651-4a8d-8ebf-be472511eefb) 
+
 ![gif](https://64.media.tumblr.com/b472d0186efc23803ae3722dfcd59a56/a04d8ee62e10f427-6a/s400x600/1c695ee82ca10479d41bc181bfa535134fefb501.webp)
