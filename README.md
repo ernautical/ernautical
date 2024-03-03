@@ -10,10 +10,12 @@ I, Ernaut, am usually seen near the library, café or wandering around. I watch 
 ![gif](https://64.media.tumblr.com/b472d0186efc23803ae3722dfcd59a56/a04d8ee62e10f427-6a/s400x600/1c695ee82ca10479d41bc181bfa535134fefb501.webp)
 
 ##### -- FREEDOMFOREVER
-![image](https://github.com/ernautical/ernautical/assets/161996176/c916414a-3c39-4070-8ff3-0312fe94a9a6)
+![image](https://github.com/ernautical/ernautical/assets/161996176/4076f47d-7195-4a2a-ba40-79c6980a43b1)
 
 Before you interact, I wish that these, https://dni-criteria.carrd.co dont apply to you. I mean this is the vilest way possible.
 Secondly, I don't keep entities friended for long; I find myself unfriending most people I interact with, leaving off only one to two people. Apologies in advance.
 I am BEGGING you to use tone tags, I am horrid at determining the tone of the conversation through text and in reality. If you wish for me to understand you, I suggest you use tone tags; /j, /hj, and /srs will suffice.
+
+![gif](https://64.media.tumblr.com/b472d0186efc23803ae3722dfcd59a56/a04d8ee62e10f427-6a/s400x600/1c695ee82ca10479d41bc181bfa535134fefb501.webp)
 
 ##### -- a more perfect union.
