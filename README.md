@@ -1,5 +1,7 @@
 ##### -- Leave us alone or join the ash pile.
 ![image](https://github.com/ernautical/FLESHLY.YEARNING/assets/161996176/245b1356-1651-4a8d-8ebf-be472511eefb)
+![image](https://github.com/ernautical/FLESHLY.YEARNING/assets/161996176/eeb95b0f-60ae-4f77-8ab0-5133dd6d1dab)
+
 
 Ernaut, present. I am the being behind this. I am autistic, and I have sociopathic tendencies; ergo, this may or may not affect how I communicate/interact with thee.
 
