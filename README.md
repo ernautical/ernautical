@@ -19,5 +19,5 @@ My interest consist of 𝙈𝙤𝙣𝙪𝙢𝙚𝙣𝙩 𝙈𝙮𝙩𝙝𝙤𝙨
 That's this repository! I thank thee for reading, and I bid thee farewell and good tidings!
 
 ![image](https://github.com/ernautical/ernautical/assets/161996176/d353de62-c99b-4da4-a42f-33d6b995c943)
-![image](https://github.com/ernautical/ernautical/assets/161996176/d722448e-2d8a-4531-a3da-d7affdfbf119)
+![image](https://github.com/ernautical/ernautical/assets/161996176/d7680bde-44e5-4c80-803d-6f3665e8d66d)
 ![image](https://github.com/ernautical/ernautical/assets/161996176/cd3b18dc-f49b-40aa-abc1-be1b4fed5ab7)
