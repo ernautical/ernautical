@@ -2,9 +2,7 @@
 ![image](https://github.com/ernautical/ernautical/assets/161996176/d7680bde-44e5-4c80-803d-6f3665e8d66d)
 ![image](https://github.com/ernautical/ernautical/assets/161996176/cd3b18dc-f49b-40aa-abc1-be1b4fed5ab7)
 
-![image](https://github.com/ernautical/ernautical/assets/161996176/9cce3e9b-6b4b-4558-9f39-901fe158f483)
 ![image](https://github.com/ernautical/ernautical/assets/161996176/59237752-f731-442e-9fee-445e4f9f2255)
-![image](https://github.com/ernautical/ernautical/assets/161996176/9cce3e9b-6b4b-4558-9f39-901fe158f483)
 
 ##### -- From Bissau, to Palau; in the shade of Avalon
 
