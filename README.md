@@ -16,7 +16,7 @@ My interest consist of 𝙈𝙤𝙣𝙪𝙢𝙚𝙣𝙩 𝙈𝙮𝙩𝙝𝙤𝙨
 
 ##### -- We can sail, we can sail with the Orinoco Flow
 
-That's this repository! I thank thee for reading, and I bid thee farewell and good tidings!
+That's the end of this repository! I thank thee for reading, and I bid thee farewell and good tidings!
 
 ![image](https://github.com/ernautical/ernautical/assets/161996176/d353de62-c99b-4da4-a42f-33d6b995c943)
 ![image](https://github.com/ernautical/ernautical/assets/161996176/d7680bde-44e5-4c80-803d-6f3665e8d66d)
