@@ -8,7 +8,7 @@ Good morrow, stranger! I am Ernaut and or Rorian; you may choose which name to c
 
 ##### -- From Fiji, to Tyree, and the Isles of Ebony
 
-Disclaimer! I am a recovering IRL, and I wish to not interact with anyone else who identifies as an IRL. Also, please do not interact with me if any of these (https://dni-criteria.carrd.co) apply to you; Genshin Impact, and Honkai Star Rail fans/players are on thin ice. Other than that, I am fine with others approaching/interacting with me.
+Disclaimer! I am a recovering IRL, and I wish to not interact with anyone else who identifies as an IRL. Please do not interact with me if any of these (https://dni-criteria.carrd.co) apply to you; Genshin Impact, and Honkai Star Rail fans/players are on thin ice. Other than that, I am fine with others approaching/interacting with me. Also, I prefer if you use tone tags whilst speaking to me so we can communicate better; if you don't know any, here's a simple guide.. (https://toneindicatorsmasterlist.carrd.co)
 
 ##### -- From Peru to Cebu; hear the power of Babylon
 
